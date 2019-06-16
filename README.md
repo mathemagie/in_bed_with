@@ -1,4 +1,4 @@
-# in_bed_with
+# la série de performances InbedWith
 
  - Heart Sensation : le sextoy vibre au rythme du coeur de son partenaire. https://www.instagram.com/p/BUtooL-lyV7/?taken-by=mathemagie 
  
@@ -14,4 +14,6 @@
  
  - In Bed With Laurent Garnier : https://www.lesinrocks.com/2019/05/29/musiques/musiques/au-festival-nuits-sonores-une-sexologue-va-tenter-de-mesurer-le-potentiel-orgasmique-des-concerts/ 
  
-  -
+  - SexGoal : https://www.instagram.com/p/BVaBWp8FJfh/?taken-by=mathemagie 
+  
+  - CONTRÔLER UN SEXTOY PAR LA PENSÉE : https://www.letagparfait.com/fr/2017/02/06/controler-un-sextoy-par-la-pensee-des-hashtags-ou-la-station-iss/
