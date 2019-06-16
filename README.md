@@ -10,7 +10,7 @@
  
  - XBOX : https://www.instagram.com/p/BUT1ZgJFo-g/?taken-by=mathemagie
  
- - PussyTalk : https://www.youtube.com/watch?v=mHtRNL8itHI&feature=youtu.be&fbclid=IwAR0W5zJpaNmLr0TXJrVzc20VlSgJXjlJOaQHZF3WcSFnH6scWvdME_ODySk
+ - PussyTalk, the project that turns your words into orgasm ! https://www.youtube.com/watch?v=mHtRNL8itHI
  
  - In Bed With Laurent Garnier : https://www.lesinrocks.com/2019/05/29/musiques/musiques/au-festival-nuits-sonores-une-sexologue-va-tenter-de-mesurer-le-potentiel-orgasmique-des-concerts/ 
  
