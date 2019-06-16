@@ -17,3 +17,5 @@
   - SexGoal : https://www.instagram.com/p/BVaBWp8FJfh/?taken-by=mathemagie 
   
   - CONTRÔLER UN SEXTOY PAR LA PENSÉE : https://www.letagparfait.com/fr/2017/02/06/controler-un-sextoy-par-la-pensee-des-hashtags-ou-la-station-iss/
+  
+  - Voice-activated sextoy : https://www.instagram.com/p/BX5p_KMl0nx/?taken-by=mathemagie 
