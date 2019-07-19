@@ -12,6 +12,8 @@
  
  - PussyTalk, the project that turns your words into orgasm ! https://www.youtube.com/watch?v=mHtRNL8itHI
  
+l'URL du prototype : https://pussytalk-client.glitch.me/?id=bY3NS
+ 
  - In Bed With Laurent Garnier : https://www.lesinrocks.com/2019/05/29/musiques/musiques/au-festival-nuits-sonores-une-sexologue-va-tenter-de-mesurer-le-potentiel-orgasmique-des-concerts/ 
  
   - SexGoal : https://www.instagram.com/p/BVaBWp8FJfh/?taken-by=mathemagie 
