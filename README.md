@@ -2,6 +2,8 @@
 
  - Heart Sensation : le sextoy vibre au rythme du coeur de son partenaire. https://www.instagram.com/p/BUtooL-lyV7/?taken-by=mathemagie 
  
+ Crédit : Anton Alt, Albert Le Batteux, Antoine Doussaud, Marie Comacle
+ 
  - JOUIR PAR HASHTAGS : https://www.letagparfait.com/fr/2017/02/06/controler-un-sextoy-par-la-pensee-des-hashtags-ou-la-station-iss/
  
  - Google Vagenda : https://mathemagie.github.io/lovesense_ble/ 
