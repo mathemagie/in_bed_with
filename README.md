@@ -33,7 +33,7 @@ l'URL du prototype : https://pussytalk-client.glitch.me/
 
 - documentaire sur Paris Première : https://vimeo.com/318037785 
 
-[UNE SEXOLOGUE ET UN DÉVELOPPEUR CRÉENT "IN BED WITH LAURENT GARNIER", UN SEXTOY CONNECTÉ AU SON DES DJ SETS] (https://www.glamourparis.com/amour-et-sexe/news/articles/une-sexologue-et-un-developpeur-creent-in-bed-with-laurent-garnier-un-sextoy-connecte-au-son-des-dj-sets-de-festival/74840)
+[UNE SEXOLOGUE ET UN DÉVELOPPEUR CRÉENT "IN BED WITH LAURENT GARNIER", UN SEXTOY CONNECTÉ AU SON DES DJ SETS](https://www.glamourparis.com/amour-et-sexe/news/articles/une-sexologue-et-un-developpeur-creent-in-bed-with-laurent-garnier-un-sextoy-connecte-au-son-des-dj-sets-de-festival/74840)
 
 https://kissmyfrogs.com/yann-minh-sex-tech-startup/
 
