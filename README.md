@@ -31,11 +31,11 @@ l'URL du prototype : https://pussytalk-client.glitch.me/
 
 - "Quel est le meilleur oeuf vibrant ? THE COMPARATIF !" par Clemity Jane : https://www.youtube.com/watch?v=iAilNEX91JM&feature=youtu.be 
 
-- documentaire sur Paris Première : https://vimeo.com/318037785 
+- Documentaire sur Paris Première : https://vimeo.com/318037785 
 
 [UNE SEXOLOGUE ET UN DÉVELOPPEUR CRÉENT "IN BED WITH LAURENT GARNIER", UN SEXTOY CONNECTÉ AU SON DES DJ SETS](https://www.glamourparis.com/amour-et-sexe/news/articles/une-sexologue-et-un-developpeur-creent-in-bed-with-laurent-garnier-un-sextoy-connecte-au-son-des-dj-sets-de-festival/74840)
 
-https://kissmyfrogs.com/yann-minh-sex-tech-startup/
+[Yann Minh : « Startups des SexTech, votre défi, c’est de faire simple ! »](https://kissmyfrogs.com/yann-minh-sex-tech-startup/)
 
 http://fr.traxmag.com/article/51617-un-sextoy-connecte-va-mesurer-le-potentiel-orgasmique-des-dj-sets-de-festivals
 
