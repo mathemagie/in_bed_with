@@ -1,6 +1,6 @@
 # La série de performances InbedWith*
 
- - Heart Sensation : le sextoy vibre au rythme du coeur de son partenaire. https://www.instagram.com/p/BUtooL-lyV7/?taken-by=mathemagie 
+ - Heart Sensation: the sextoy vibrates to the rhythm of his partner's heart. https://www.instagram.com/p/BUtooL-lyV7/?taken-by=mathemagie 
  
  Crédit : Anton Alt, Albert Le Batteux, Antoine Doussaud, Marie Comacle
  
@@ -20,7 +20,7 @@ l'URL du prototype : https://pussytalk-client.glitch.me/
  
   - SexGoal : https://www.instagram.com/p/BVaBWp8FJfh/?taken-by=mathemagie 
   
-  - CONTRÔLER UN SEXTOY PAR LA PENSÉE : https://www.letagparfait.com/fr/2017/02/06/controler-un-sextoy-par-la-pensee-des-hashtags-ou-la-station-iss/
+  - CONTROL A SEXTOY BY THINKING : https://www.letagparfait.com/fr/2017/02/06/controler-un-sextoy-par-la-pensee-des-hashtags-ou-la-station-iss/
   
   - Voice-activated sextoy : https://www.instagram.com/p/BX5p_KMl0nx/?taken-by=mathemagie 
 
@@ -33,7 +33,7 @@ l'URL du prototype : https://pussytalk-client.glitch.me/
 
 - documentaire sur Paris Première : https://vimeo.com/318037785 
 
-https://www.glamourparis.com/amour-et-sexe/news/articles/une-sexologue-et-un-developpeur-creent-in-bed-with-laurent-garnier-un-sextoy-connecte-au-son-des-dj-sets-de-festival/74840 
+[UNE SEXOLOGUE ET UN DÉVELOPPEUR CRÉENT "IN BED WITH LAURENT GARNIER", UN SEXTOY CONNECTÉ AU SON DES DJ SETS] (https://www.glamourparis.com/amour-et-sexe/news/articles/une-sexologue-et-un-developpeur-creent-in-bed-with-laurent-garnier-un-sextoy-connecte-au-son-des-dj-sets-de-festival/74840)
 
 https://kissmyfrogs.com/yann-minh-sex-tech-startup/
 
