@@ -1,20 +1,20 @@
-# La série de performances InbedWith*
+# The performance series "InbedWith*"
 
  - Heart Sensation: the sextoy vibrates to the rhythm of his partner's heart. https://www.instagram.com/p/BUtooL-lyV7/?taken-by=mathemagie 
  
  Crédit : Anton Alt, Albert Le Batteux, Antoine Doussaud, Marie Comacle
  
- - JOUIR PAR HASHTAGS : https://www.letagparfait.com/fr/2017/02/06/controler-un-sextoy-par-la-pensee-des-hashtags-ou-la-station-iss/
+ - Enjoy by hashtags : https://www.letagparfait.com/fr/2017/02/06/controler-un-sextoy-par-la-pensee-des-hashtags-ou-la-station-iss/
  
  - Google Vagenda : https://mathemagie.github.io/lovesense_ble/ 
  
  - In Bed With Thomas Pesquet : https://www.numerama.com/tech/230559-qui-est-aurelien-fache-cet-api-artist-qui-vous-propose-de-faire-lamour-a-thomas-pesquet.html 
  
- - XBOX : https://www.instagram.com/p/BUT1ZgJFo-g/?taken-by=mathemagie
+ - XBOX (We took control of a sextoy with a #XBOX controller.)  https://www.instagram.com/p/BUT1ZgJFo-g/?taken-by=mathemagie
  
  - PussyTalk, the project that turns your words into orgasm ! https://www.youtube.com/watch?v=mHtRNL8itHI
  
-l'URL du prototype : https://pussytalk-client.glitch.me/
+the prototype URL : https://pussytalk-client.glitch.me/
  
  - In Bed With Laurent Garnier : https://www.lesinrocks.com/2019/05/29/musiques/musiques/au-festival-nuits-sonores-une-sexologue-va-tenter-de-mesurer-le-potentiel-orgasmique-des-concerts/ 
  
