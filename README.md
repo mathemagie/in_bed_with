@@ -1,5 +1,8 @@
 # The performance series "InbedWith*"
 
+ - In Bed With Thomas Pesquet : https://www.numerama.com/tech/230559-qui-est-aurelien-fache-cet-api-artist-qui-vous-propose-de-faire-lamour-a-thomas-pesquet.html 
+
+
  - Heart Sensation: the sextoy vibrates to the rhythm of his partner's heart. https://www.instagram.com/p/BUtooL-lyV7/?taken-by=mathemagie 
  
  Crédit : Anton Alt, Albert Le Batteux, Antoine Doussaud, Marie Comacle
@@ -7,8 +10,6 @@
  - Enjoy by hashtags : https://www.letagparfait.com/fr/2017/02/06/controler-un-sextoy-par-la-pensee-des-hashtags-ou-la-station-iss/
  
  - Google Vagenda : https://mathemagie.github.io/lovesense_ble/ 
- 
- - In Bed With Thomas Pesquet : https://www.numerama.com/tech/230559-qui-est-aurelien-fache-cet-api-artist-qui-vous-propose-de-faire-lamour-a-thomas-pesquet.html 
  
  - XBOX (We took control of a sextoy with a #XBOX controller.)  https://www.instagram.com/p/BUT1ZgJFo-g/?taken-by=mathemagie
  
