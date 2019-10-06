@@ -76,5 +76,4 @@ https://www.franceinter.fr/emissions/vivement-demain/vivement-demain-09-avril-20
 
 https://futureofsex.net/remote-sex/pussytalk-takes-sexting-to-next-level-with-sms-controlled-sex-toys/
 
-[Sexologist Turns Techno Beats into Sex Toy Pleasure Pulses]
-(https://futureofsex.net/remote-sex/the-beat-goes-on-sexologist-really-rocks-to-techno/)
+[Sexologist Turns Techno Beats into Sex Toy Pleasure Pulses](https://futureofsex.net/remote-sex/the-beat-goes-on-sexologist-really-rocks-to-techno/)
