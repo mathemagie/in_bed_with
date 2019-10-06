@@ -75,3 +75,6 @@ https://www.vocativ.com/399920/control-sex-toy-vibrator-with-your-mind/index.htm
 https://www.franceinter.fr/emissions/vivement-demain/vivement-demain-09-avril-2017 
 
 https://futureofsex.net/remote-sex/pussytalk-takes-sexting-to-next-level-with-sms-controlled-sex-toys/
+
+[Sexologist Turns Techno Beats into Sex Toy Pleasure Pulses]
+(https://futureofsex.net/remote-sex/the-beat-goes-on-sexologist-really-rocks-to-techno/)
