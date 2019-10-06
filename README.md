@@ -34,13 +34,13 @@ the prototype URL : https://pussytalk-client.glitch.me/
 
 - Documentaire sur Paris Première : https://vimeo.com/318037785 
 
-[UNE SEXOLOGUE ET UN DÉVELOPPEUR CRÉENT "IN BED WITH LAURENT GARNIER", UN SEXTOY CONNECTÉ AU SON DES DJ SETS](https://www.glamourparis.com/amour-et-sexe/news/articles/une-sexologue-et-un-developpeur-creent-in-bed-with-laurent-garnier-un-sextoy-connecte-au-son-des-dj-sets-de-festival/74840)
+- [UNE SEXOLOGUE ET UN DÉVELOPPEUR CRÉENT "IN BED WITH LAURENT GARNIER", UN SEXTOY CONNECTÉ AU SON DES DJ SETS](https://www.glamourparis.com/amour-et-sexe/news/articles/une-sexologue-et-un-developpeur-creent-in-bed-with-laurent-garnier-un-sextoy-connecte-au-son-des-dj-sets-de-festival/74840)
 
-[Yann Minh : « Startups des SexTech, votre défi, c’est de faire simple ! »](https://kissmyfrogs.com/yann-minh-sex-tech-startup/)
+- [Yann Minh : « Startups des SexTech, votre défi, c’est de faire simple ! »](https://kissmyfrogs.com/yann-minh-sex-tech-startup/)
 
-http://fr.traxmag.com/article/51617-un-sextoy-connecte-va-mesurer-le-potentiel-orgasmique-des-dj-sets-de-festivals
+- [UN SEXTOY CONNECTÉ VA MESURER LE “POTENTIEL ORGASMIQUE” DES DJ SETS DE FESTIVALS](http://fr.traxmag.com/article/51617-un-sextoy-connecte-va-mesurer-le-potentiel-orgasmique-des-dj-sets-de-festivals)
 
-https://mixmag.fr/read/faites-litteralement-lamour-a-la-techno-grace-a-un-sextoy-connecte-news 
+- [AITES LITTÉRALEMENT L’AMOUR À LA TECHNO GRÂCE À UN SEXTOY CONNECTÉ](https://mixmag.fr/read/faites-litteralement-lamour-a-la-techno-grace-a-un-sextoy-connecte-news)
 
 https://fr.style.yahoo.com/sexologue-d%C3%A9veloppeur-cr%C3%A9ent-in-bed-100815236.html?guccounter=1&guce_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS8&guce_referrer_sig=AQAAAK3565c7h8FDQqhwlw5TfGkwDFq87_hW2eVWK6AWUu1ECxwyzCwtlyzQDznQTMRUviXp2pJz580oDSSY4Nn_9uS5FpcsfTsypRdV_AAV45FOiBsI9G02uAV4fiKvBs8xABiXlr1YpXF1i0N3GwgVHeJfpH895sL65FK_eb8kpJ6m
 
@@ -76,4 +76,4 @@ https://www.franceinter.fr/emissions/vivement-demain/vivement-demain-09-avril-20
 
 https://futureofsex.net/remote-sex/pussytalk-takes-sexting-to-next-level-with-sms-controlled-sex-toys/
 
-[Sexologist Turns Techno Beats into Sex Toy Pleasure Pulses](https://futureofsex.net/remote-sex/the-beat-goes-on-sexologist-really-rocks-to-techno/)
+- [Sexologist Turns Techno Beats into Sex Toy Pleasure Pulses](https://futureofsex.net/remote-sex/the-beat-goes-on-sexologist-really-rocks-to-techno/)
