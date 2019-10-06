@@ -40,40 +40,40 @@ the prototype URL : https://pussytalk-client.glitch.me/
 
 - [UN SEXTOY CONNECTÉ VA MESURER LE “POTENTIEL ORGASMIQUE” DES DJ SETS DE FESTIVALS](http://fr.traxmag.com/article/51617-un-sextoy-connecte-va-mesurer-le-potentiel-orgasmique-des-dj-sets-de-festivals)
 
-- [AITES LITTÉRALEMENT L’AMOUR À LA TECHNO GRÂCE À UN SEXTOY CONNECTÉ](https://mixmag.fr/read/faites-litteralement-lamour-a-la-techno-grace-a-un-sextoy-connecte-news)
+- [FAITES LITTÉRALEMENT L’AMOUR À LA TECHNO GRÂCE À UN SEXTOY CONNECTÉ](https://mixmag.fr/read/faites-litteralement-lamour-a-la-techno-grace-a-un-sextoy-connecte-news)
 
 https://fr.style.yahoo.com/sexologue-d%C3%A9veloppeur-cr%C3%A9ent-in-bed-100815236.html?guccounter=1&guce_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS8&guce_referrer_sig=AQAAAK3565c7h8FDQqhwlw5TfGkwDFq87_hW2eVWK6AWUu1ECxwyzCwtlyzQDznQTMRUviXp2pJz580oDSSY4Nn_9uS5FpcsfTsypRdV_AAV45FOiBsI9G02uAV4fiKvBs8xABiXlr1YpXF1i0N3GwgVHeJfpH895sL65FK_eb8kpJ6m
 
-https://www.lesinrocks.com/2019/05/29/musiques/musiques/au-festival-nuits-sonores-une-sexologue-va-tenter-de-mesurer-le-potentiel-orgasmique-des-concerts/ 
+- [Au festival Nuits Sonores, une sexologue va tenter de mesurer le “potentiel orgasmique” des concerts](https://www.lesinrocks.com/2019/05/29/musiques/musiques/au-festival-nuits-sonores-une-sexologue-va-tenter-de-mesurer-le-potentiel-orgasmique-des-concerts/)
 
 http://www.nova.fr/podcast/todays-special/le-todays-special-du-5-juin 
 
-https://www.makery.info/2017/02/09/le-sextoy-controle-par-la-force-de-la-pensee-du-tag-parfait/ 
+- [Le sextoy contrôlé par la force de la pensée du «Tag Parfait»](https://www.makery.info/2017/02/09/le-sextoy-controle-par-la-force-de-la-pensee-du-tag-parfait/)
 
 https://vimeo.com/318037785 
 
-https://futureofsex.net/remote-sex/companies-explore-potential-benefits-mind-controlled-sex-toys/ 
+- https://futureofsex.net/remote-sex/companies-explore-potential-benefits-mind-controlled-sex-toys/ 
 
-https://www.ean-online.com/company-news/developers-control-vibrator-using-brain-waves/
+- https://www.ean-online.com/company-news/developers-control-vibrator-using-brain-waves/
 
-https://www.playboy.hu/80072-megerkezett-a-gondolatokkal-vezerelheto-vibr
+- https://www.playboy.hu/80072-megerkezett-a-gondolatokkal-vezerelheto-vibr
 
-http://www.fredzone.org/il-est-possible-de-controler-un-sextoy-par-la-pensee-grace-a-une-simple-api-554 
+- http://www.fredzone.org/il-est-possible-de-controler-un-sextoy-par-la-pensee-grace-a-une-simple-api-554 
 
-https://www.xbiz.com/news/216997/lovense-api-enables-mind-controlled-sex-toys 
+- https://www.xbiz.com/news/216997/lovense-api-enables-mind-controlled-sex-toys 
 
-https://www.dagospia.com/rubrica-2/media_e_tv/futuro-tele-dildo-ecco-prototipo-sex-toy-controllato-141207.htm 
+- https://www.dagospia.com/rubrica-2/media_e_tv/futuro-tele-dildo-ecco-prototipo-sex-toy-controllato-141207.htm 
 
-http://www.makery.info/2017/02/09/le-sextoy-controle-par-la-force-de-la-pensee-du-tag-parfait/
+- http://www.makery.info/2017/02/09/le-sextoy-controle-par-la-force-de-la-pensee-du-tag-parfait/
 
-http://www.ilgiornale.it/news/tecnologia/i-sex-toys-si-controllano-pensiero-1361338.html 
+- http://www.ilgiornale.it/news/tecnologia/i-sex-toys-si-controllano-pensiero-1361338.html 
 
-https://www.letagparfait.com/fr/2017/02/06/controler-un-sextoy-par-la-pensee-des-hashtags-ou-la-station-iss/
+- https://www.letagparfait.com/fr/2017/02/06/controler-un-sextoy-par-la-pensee-des-hashtags-ou-la-station-iss/
 
-https://www.vocativ.com/399920/control-sex-toy-vibrator-with-your-mind/index.html 
+- https://www.vocativ.com/399920/control-sex-toy-vibrator-with-your-mind/index.html 
 
-https://www.franceinter.fr/emissions/vivement-demain/vivement-demain-09-avril-2017 
+- https://www.franceinter.fr/emissions/vivement-demain/vivement-demain-09-avril-2017 
 
-https://futureofsex.net/remote-sex/pussytalk-takes-sexting-to-next-level-with-sms-controlled-sex-toys/
+- https://futureofsex.net/remote-sex/pussytalk-takes-sexting-to-next-level-with-sms-controlled-sex-toys/
 
 - [Sexologist Turns Techno Beats into Sex Toy Pleasure Pulses](https://futureofsex.net/remote-sex/the-beat-goes-on-sexologist-really-rocks-to-techno/)
