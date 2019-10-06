@@ -28,7 +28,7 @@ the prototype URL : https://pussytalk-client.glitch.me/
 
 # Parutions 
 
-- CracCrac 
+- CracCrac : https://www.youtube.com/watch?v=34EPq1FnUl4 
 
 - "Quel est le meilleur oeuf vibrant ? THE COMPARATIF !" par Clemity Jane : https://www.youtube.com/watch?v=iAilNEX91JM&feature=youtu.be 
 
@@ -49,8 +49,6 @@ the prototype URL : https://pussytalk-client.glitch.me/
 - http://www.nova.fr/podcast/todays-special/le-todays-special-du-5-juin 
 
 - [Le sextoy contrôlé par la force de la pensée du «Tag Parfait»](https://www.makery.info/2017/02/09/le-sextoy-controle-par-la-force-de-la-pensee-du-tag-parfait/)
-
-https://vimeo.com/318037785 
 
 - https://futureofsex.net/remote-sex/companies-explore-potential-benefits-mind-controlled-sex-toys/ 
 
