@@ -75,3 +75,5 @@ the prototype URL : https://pussytalk-client.glitch.me/
 - https://futureofsex.net/remote-sex/pussytalk-takes-sexting-to-next-level-with-sms-controlled-sex-toys/
 
 - [Sexologist Turns Techno Beats into Sex Toy Pleasure Pulses](https://futureofsex.net/remote-sex/the-beat-goes-on-sexologist-really-rocks-to-techno/)
+
+- https://brain-page-q.fr/article/page-q/54038-Enfin-un-kit-main-libre-interessant 
