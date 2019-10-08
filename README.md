@@ -79,3 +79,5 @@ the prototype URL : https://pussytalk-client.glitch.me/
 - [Sexologist Turns Techno Beats into Sex Toy Pleasure Pulses](https://futureofsex.net/remote-sex/the-beat-goes-on-sexologist-really-rocks-to-techno/)
 
 - https://brain-page-q.fr/article/page-q/54038-Enfin-un-kit-main-libre-interessant 
+
+- https://www.ladn.eu/non-classe/envoyez-vous-en-lair-avec-thomas-pesquet/
