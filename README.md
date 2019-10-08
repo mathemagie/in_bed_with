@@ -28,6 +28,8 @@ the prototype URL : https://pussytalk-client.glitch.me/
 
 # Parutions 
 
+- https://www.numerama.com/tech/230559-qui-est-aurelien-fache-cet-api-artist-qui-vous-propose-de-faire-lamour-a-thomas-pesquet.html
+
 - CracCrac : https://www.youtube.com/watch?v=34EPq1FnUl4 
 
 - "Quel est le meilleur oeuf vibrant ? THE COMPARATIF !" par Clemity Jane : https://www.youtube.com/watch?v=iAilNEX91JM&feature=youtu.be 
