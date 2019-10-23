@@ -81,3 +81,5 @@ the prototype URL : https://pussytalk-client.glitch.me/
 - https://brain-page-q.fr/article/page-q/54038-Enfin-un-kit-main-libre-interessant 
 
 - https://www.ladn.eu/non-classe/envoyez-vous-en-lair-avec-thomas-pesquet/
+
+- https://futureofsex.net/remote-sex/sea-of-love-innovative-project-mixes-sex-and-the-ocean/
