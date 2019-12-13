@@ -24,6 +24,8 @@ the prototype URL : https://pussytalk-client.glitch.me/
   - CONTROL A SEXTOY BY THINKING : https://www.letagparfait.com/fr/2017/02/06/controler-un-sextoy-par-la-pensee-des-hashtags-ou-la-station-iss/
   
   - Voice-activated sextoy : https://www.instagram.com/p/BX5p_KMl0nx/?taken-by=mathemagie 
+  
+  - GPSex - Highway to get joy ! (VERY BEST GPS) : https://www.youtube.com/watch?v=bmxSFc0QbDU&feature=youtu.be&fbclid=IwAR07MOnxGb3dfkHLChyqs0U9k_UJ6pVhuwc3p2RZsmu5KD2YEvtHjT2Wiu4
 
 
 # Parutions 
