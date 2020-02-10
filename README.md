@@ -85,3 +85,7 @@ the prototype URL : https://pussytalk-client.glitch.me/
 - https://www.ladn.eu/non-classe/envoyez-vous-en-lair-avec-thomas-pesquet/
 
 - https://futureofsex.net/remote-sex/sea-of-love-innovative-project-mixes-sex-and-the-ocean/
+
+- PODCAST CRAC CRAC #7 : SEXE & NOUVELLES TECHNOLOGIES avec Cathline Smoos & Léa de @mercibeaucul : https://www.youtube.com/watch?v=4yy-aE1ZMzw&feature=share&fbclid=IwAR0vUa9pdKeca8i0Bhex5BsI6o1dWUedgVuqkZE_0iep5qebtfMYkSDA0ic
+
+- Smart Potatoe & SexTech in CES : https://www.nova.fr/podcast/tech-paf/smart-potatoe-sextech-ces
