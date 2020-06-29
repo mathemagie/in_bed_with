@@ -89,3 +89,5 @@ the prototype URL : https://pussytalk-client.glitch.me/
 - PODCAST CRAC CRAC #7 : SEXE & NOUVELLES TECHNOLOGIES avec Cathline Smoos & Léa de @mercibeaucul : https://www.youtube.com/watch?v=4yy-aE1ZMzw&feature=share&fbclid=IwAR0vUa9pdKeca8i0Bhex5BsI6o1dWUedgVuqkZE_0iep5qebtfMYkSDA0ic
 
 - Smart Potatoe & SexTech in CES : https://www.nova.fr/podcast/tech-paf/smart-potatoe-sextech-ces
+
+- 2069 : explorer le futur du sexe (et des slips connectés) : https://www.gqmagazine.fr/sexe/article/2069-explorer-le-futur-du-sexe-et-des-slips-connectes?fbclid=IwAR3PorN1s8JIDueizgGGDWDKg45wsSrlBdQfk_Qu2d_AMwNy2H5XDihAX30
